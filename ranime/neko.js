@@ -1,4 +1,4 @@
-https://i.pinimg.com/originals/1c/ee/de/1ceede5ff32d841aa17c36dfd9730608.jpg //6
+https://i.pinimg.com/originals/1c/ee/de/1ceede5ff32d841aa17c36dfd9730608.jpg
 https://i.pinimg.com/originals/22/c7/95/22c795a87fb8f21051f087ee1940c334.jpg
 https://i.pinimg.com/originals/14/e8/fa/14e8fa35bf5b8c13f4f51e59c7ad2a1d.jpg
 https://i.pinimg.com/originals/13/7f/4c/137f4ca2cb0e8f17a006cc1e06f2d4a7.jpg
